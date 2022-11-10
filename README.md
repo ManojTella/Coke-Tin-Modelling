@@ -30,7 +30,7 @@ Step10: Repeat the samething with scale tool in the bottom the can.
 
 ## Output
 
-https://youtu.be/BhWq1pm3xjI
+
 
 ## Result
 
